@@ -1,4 +1,4 @@
-# RA1: Conhecer os Princípios Básicos da Legislação Comercial, Laboral e Fiscal em Moçambique
+# RA1 (Rezultado de Aprendizagem 1): Conhecer os Princípios Básicos da Legislação Comercial, Laboral e Fiscal em Moçambique
 
 > **Módulo:** Preencher os modelos obrigatórios para o pagamento das obrigações sociais e legais
 
